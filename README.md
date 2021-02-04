@@ -1,1 +1,1 @@
-# takatoshi-kanemoto.github.io
+# t-kanemoto.github.io
